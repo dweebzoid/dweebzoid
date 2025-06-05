@@ -1,4 +1,5 @@
 im dw
+send stuff if ur epik: https://scyker.straw.page
 
 ![](https://pbs.twimg.com/media/GqrTDNWXIAAUWGN?format=jpg&name=small)
 <!--
