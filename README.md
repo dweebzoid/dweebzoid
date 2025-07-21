@@ -1,6 +1,6 @@
 send stuff if ur epik: https://scyker.straw.page
 
-![]([[https://pbs.twimg.com/media/GqrTDNWXIAAUWGN?](https://limbuscompany.wiki.gg/images/thumb/2/20/S216.png/1920px-S216.png?974823)](https://cdn.discordapp.com/attachments/906679512962592818/1396694166196588574/g860kvE.png?ex=687f044e&is=687db2ce&hm=d0af02cf706e78f6bf67e081873b191f10378f7df91f9735120a699e71792f72&)format=jpg&name=small)
+![](https://pbs.twimg.com/media/GqrTDNWXIAAUWGN?](https://limbuscompany.wiki.gg/images/thumb/2/20/S216.png/1920px-S216.png?974823)](https://cdn.discordapp.com/attachments/906679512962592818/1396694166196588574/g860kvE.png?ex=687f044e&is=687db2ce&hm=d0af02cf706e78f6bf67e081873b191f10378f7df91f9735120a699e71792f72&)format=jpg&name=small](https://cdn.discordapp.com/attachments/906679512962592818/1396694166196588574/g860kvE.png?ex=687f044e&is=687db2ce&hm=d0af02cf706e78f6bf67e081873b191f10378f7df91f9735120a699e71792f72&))
 <!--
 **dweebzoid/dweebzoid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
