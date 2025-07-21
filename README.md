@@ -1,7 +1,6 @@
-im dw
 send stuff if ur epik: https://scyker.straw.page
 
-![](https://pbs.twimg.com/media/GqrTDNWXIAAUWGN?format=jpg&name=small)
+![]([https://pbs.twimg.com/media/GqrTDNWXIAAUWGN?](https://limbuscompany.wiki.gg/images/thumb/2/20/S216.png/1920px-S216.png?974823)format=jpg&name=small)
 <!--
 **dweebzoid/dweebzoid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
